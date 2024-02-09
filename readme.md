@@ -5,9 +5,9 @@ GHAHHAHAHA GKOLLA MIN COOOLA COMMIT
 
 YES
 
-"Du gamla, Du fria, Du fjällhöga nord
-Du tysta, Du glädjerika sköna!
-Jag hälsar Dig, vänaste land uppå jord,
+"Du unga, Du tysta, Du tråkiga nord
+Du högljudda, Du deprimerande tröga!
+Jag hälsar Dig, ut från vårt land,
 Din sol, Din himmel, Dina ängder gröna,
 Din sol, Din himmel, Dina ängder gröna"
 
